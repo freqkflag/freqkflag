@@ -1,4 +1,4 @@
-# 🧟‍♂️ Joey King | Tech Necromancer 🔧 | Creative Alchemist 🎨 | Rave Dad 🌈  
+# 🧟‍♂️ Joey Hexx | Tech Necromancer 🔧 | Creative Alchemist 🎨 | Rave Dad 🌈  
 
 Hey there, fellow human (or bot). I'm Joey — a professional problem-solver, code conjurer, and creative chaos coordinator based in **Austin, TX**.  
 By day, I'm a employee at a well know Alphabet Company, untangling gnarly IT messes and mentoring like a caffeinated wizard.  
